@@ -2,12 +2,7 @@
 first rep
 
 
-bgkjnfkjgngfgfh
-gf
-gf
-hg
 
-j
 r
 y
 th
@@ -19,3 +14,12 @@ d
 
 ydj
 y
+
+h
+
+j
+yt
+
+tuty
+ty
+yt
