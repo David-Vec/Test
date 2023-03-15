@@ -2,16 +2,6 @@
 first rep
 
 
-
-r
-y
-th
-gh
-y
-j
-uk
-d
-
 ydj
 y
 
@@ -23,3 +13,19 @@ yt
 tuty
 ty
 yt
+g
+g
+g
+g
+g
+g
+
+g
+
+gg
+g
+gg
+g
+g
+
+g
