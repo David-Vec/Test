@@ -13,4 +13,3 @@ done
 this is cat in main
 ignore it
 
-dele sss
